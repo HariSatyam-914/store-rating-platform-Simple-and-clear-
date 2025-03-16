@@ -1,0 +1,1 @@
+# store-rating-platform-Simple-and-clear-
